@@ -15,4 +15,4 @@ Uruguay   2             groups phase
 Argentina 3             1 (winner)
 England   4             quarterfinals
 
-If you have any question or comment, please contact me at joanalnu5@gmail.com
+If you have any question or comment, please contact me at joanalcaide@dsbarcelona.com
